@@ -1,1 +1,3 @@
 - [How to Turn Steel Black - All you need to know about Bluing](https://youtu.be/5Sty5upsadY)
+- [Treating Metal Parts with Hot-Oil Blackening - Part 1](https://youtu.be/OxksyB0zPsM)
+- [Treating Metal Parts with Hot-Oil Blackening - Part 2](https://youtu.be/yBKedhJzD1s)
