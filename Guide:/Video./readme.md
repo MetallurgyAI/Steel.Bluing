@@ -10,5 +10,4 @@
 - [Triple-T #82: Hot salt bluing / blackening for knives](https://youtu.be/_v--rblTu1w) by: Tyrell Knifeworks
 - [Turn Steel Black - Cold and Hot Bluing Process Explained](https://youtu.be/pRMwnkwph8Q) by: Laura Kampf
 - [Spare Parts #12 - Heat Bluing A Set Of Steel Clock Hands](https://youtu.be/NhjiIPohUyw) by: Clickspring
-- [Thermal Bluing Steel Watch Hands](
-@DIYWatchClub
+- [Thermal Bluing Steel Watch Hands](https://youtu.be/AeISVhZxLm8) by: @DIYWatchClub
