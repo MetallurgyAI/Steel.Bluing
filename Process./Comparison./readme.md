@@ -1,1 +1,1 @@
-- [Best Way To Blue Steel? Cold Blue, Hot Blue or Rust Bluing.](
+- [Best Way To Blue Steel? Cold Blue, Hot Blue or Rust Bluing.](https://youtu.be/OAA_cEZswU8)
