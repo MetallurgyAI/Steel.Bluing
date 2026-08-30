@@ -8,4 +8,5 @@
 - [How to COOK Steel Black! Cook Bluing](https://youtu.be/YmqlSMjD_2M)
 - [How to Turn Steel Black - All you need to know about Bluing](https://youtu.be/5Sty5upsadY)
 - [Triple-T #82: Hot salt bluing / blackening for knives](https://youtu.be/_v--rblTu1w) by: Tyrell Knifeworks
-- [Turn Steel Black - Cold and Hot Bluing Process Explained]( by: Laura Kampf
+- [Turn Steel Black - Cold and Hot Bluing Process Explained](https://youtu.be/pRMwnkwph8Q) by: Laura Kampf
+- [
