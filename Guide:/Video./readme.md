@@ -22,4 +22,4 @@
 - [1 Hour Red Rust Bluing](https://youtu.be/xmv58Z3RZ9c)
 - [BLACK STEEL in 10 minutes: CAUSTIC BLUING Tutorial (with Household Materials)](https://youtu.be/VVXxB6COUYs)
 - [DIY Metal Finishing: How to Blue Steel Parts Properly](https://youtu.be/PGpYh-_llzE)
-- [
+- [How to Refinish Rusty Fasteners with a Black Oxide Coating](https://youtu.be/vyvfR1NNQK4)
