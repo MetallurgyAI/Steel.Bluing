@@ -6,4 +6,4 @@
 - [Treating Metal Parts with Hot-Oil Blackening - Part 1](https://youtu.be/OxksyB0zPsM)
 - [Treating Metal Parts with Hot-Oil Blackening - Part 2](https://youtu.be/yBKedhJzD1s)
 - [How to COOK Steel Black! Cook Bluing](https://youtu.be/YmqlSMjD_2M)
-- [
+- [How to Turn Steel Black - All you need to know about Bluing](
