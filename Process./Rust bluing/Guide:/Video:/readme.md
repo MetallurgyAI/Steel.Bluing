@@ -1,2 +1,0 @@
-- [DIY Rust Blue - Bluing with Peroxide, Vinegar and Salt](https://youtu.be/7lXeT2qzCi0)
-- [

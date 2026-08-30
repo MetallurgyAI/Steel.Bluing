@@ -1,0 +1,2 @@
+- [DIY Rust Blue - Bluing with Peroxide, Vinegar and Salt](https://youtu.be/7lXeT2qzCi0)
+- [Rust Bluing Tutorial - Turn any Steel Object Black With Household Materials]( by: Beyond Ballistics
