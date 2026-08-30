@@ -7,6 +7,7 @@
 - [Rust Bluing Tutorial - Turn any Steel Object Black With Household Materials](https://youtu.be/4OhhBIN1Odw)
 
 # Index.
+- [How to prevent rust that anyone can easily do with what is at home - Black oxide coating](https://youtu.be/TmF31dkjVs4)
 - [Not So Slow Rust Bluing](https://youtu.be/xfFqyYoH2A8)
 - [Black Oxide Coating Parts For Your Own Projects](https://youtu.be/TFfJwNvK1iY)
 - [Triple-T #82: Hot salt bluing / blackening for knives](https://youtu.be/_v--rblTu1w)
