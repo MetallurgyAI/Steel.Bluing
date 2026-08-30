@@ -23,3 +23,4 @@
 - [BLACK STEEL in 10 minutes: CAUSTIC BLUING Tutorial (with Household Materials)](https://youtu.be/VVXxB6COUYs)
 - [DIY Metal Finishing: How to Blue Steel Parts Properly](https://youtu.be/PGpYh-_llzE)
 - [How to Refinish Rusty Fasteners with a Black Oxide Coating](https://youtu.be/vyvfR1NNQK4)
+- [How to do professional quality black oxide finishing in the home workshop.](https://youtu.be/cFjWRQwWb4k)
