@@ -1,1 +1,2 @@
 - [Best Way To Blue Steel? Cold Blue, Hot Blue or Rust Bluing.](https://youtu.be/OAA_cEZswU8)
+- [Three Options For Bluing Steel](https://youtu.be/QkcKGgHGRo8)
