@@ -12,4 +12,4 @@
 - [Spare Parts #12 - Heat Bluing A Set Of Steel Clock Hands](https://youtu.be/NhjiIPohUyw) by: Clickspring
 - [Thermal Bluing Steel Watch Hands](https://youtu.be/AeISVhZxLm8) by: @DIYWatchClub
 - [1 Hour Red Rust Bluing](https://youtu.be/xmv58Z3RZ9c)
-- [
+- [BLACK STEEL in 10 minutes: CAUSTIC BLUING Tutorial (with Household Materials)](https://youtu.be/VVXxB6COUYs)
