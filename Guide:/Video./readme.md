@@ -7,6 +7,7 @@
 - [Rust Bluing Tutorial - Turn any Steel Object Black With Household Materials](https://youtu.be/4OhhBIN1Odw)
 
 # Index.
+- [Black Oxide: The Simple and Powerful Way to Transform Your Hardware](https://youtu.be/e7R8N3b4OtE)
 - [How to prevent rust that anyone can easily do with what is at home - Black oxide coating](https://youtu.be/TmF31dkjVs4)
 - [Not So Slow Rust Bluing](https://youtu.be/xfFqyYoH2A8)
 - [Black Oxide Coating Parts For Your Own Projects](https://youtu.be/TFfJwNvK1iY)
