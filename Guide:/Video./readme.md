@@ -3,7 +3,8 @@
 
 # Liked:
 - [How to Turn Steel Black - All you need to know about Bluing](https://youtu.be/5Sty5upsadY)
-- - [How to Turn Steel Black - All you need to know about Bluing](https://youtu.be/5Sty5upsadY)
+- [How to Turn Steel Black - All you need to know about Bluing](https://youtu.be/5Sty5upsadY)
+- [Rust Bluing Tutorial - Turn any Steel Object Black With Household Materials](https://youtu.be/4OhhBIN1Odw)
 
 # Index.
 - [Triple-T #82: Hot salt bluing / blackening for knives](https://youtu.be/_v--rblTu1w)
