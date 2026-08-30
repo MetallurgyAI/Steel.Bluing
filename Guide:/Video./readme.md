@@ -11,3 +11,5 @@
 - [Turn Steel Black - Cold and Hot Bluing Process Explained](https://youtu.be/pRMwnkwph8Q) by: Laura Kampf
 - [Spare Parts #12 - Heat Bluing A Set Of Steel Clock Hands](https://youtu.be/NhjiIPohUyw) by: Clickspring
 - [Thermal Bluing Steel Watch Hands](https://youtu.be/AeISVhZxLm8) by: @DIYWatchClub
+- [1 Hour Red Rust Bluing](https://youtu.be/xmv58Z3RZ9c)
+- [
